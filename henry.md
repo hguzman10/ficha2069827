@@ -1,18 +1,179 @@
-### HOJA DE VIDA HENRY
+  ##HOJA DE VIDA 
 
-Ingeniero de sistemas con especialización en software, con conocimientos en android, ruby.
 
-## Ubicación
-Me puede encontrar en la Calle 56 pero igual en la calle 35
+                                                                
+                                                         
+                                                                       
+ 
+ 
+                                                              
+                                                                   ##I.PERFIL
+  
+    Tecnologo en sistemas en formación capacitado para coordinar los procesos analisis, programacion y desarrollo de sistema de informacion, Capaz de afrontar los cambios, dispuesto y motivado a        enfrentarse a un medio globalizado y competitivo. Excelentes relaciones interpersonales,capacidad para asumir responsabilidades y cumplimiento de metas.
 
-## Telefonos de contacto
-Pueden contactarme a los telefonos 434545
+                                                              
 
-## Contactos
+                                                               
+                                                                 
+                                                                 ##II.Datos personales
+                      
 
-Mis contactos son:
+                                        
+                     
+                                    Nombre: Jose Miguel Diazgranados Rondon
 
-1. Luis Martinez => 355665
-2. Maria => 3434
-3. Carlos => 365567898
-4. Diana => 5455
+                                    Direccion: Cra 22c N°.55-39
+                                    
+                                    Barrio: villa catanga
+                                                                                     
+                                    Celular:3117488750
+                                     
+                                    Correo Electronico: Jdiazmiguel@outlook.com
+            
+                                    Ciudad: Barranquilla - atlantico 
+
+
+
+
+                                       
+ 
+ 
+                                                                 ##III.Educacion formal
+                 
+                                   
+                                    Estudios tecnologo: Servicio nacional de aprendizaje (Sena). Barranquilla- atlantico (cursando)
+                        
+                                     
+                                    Estudios Técnicos: Servicio nacional de aprendizaje - (SENA)
+
+                                    Técnico en Sistema. Año 2018
+
+ 
+                                    Estudios Secundarios:  Institución Monsalve Newlove
+
+                                                            Bachiller Académico
+
+                                                                Año 2018
+
+                                                           Barranquilla Atlántico.
+
+
+
+
+
+
+
+
+                                                           ##IV. FORMACION COMPLEMENTARIA
+
+  
+                                   CERTIFICACION CURSO COMPLEMENTARIO DE: ALGORITMO(Programa analisis y desarollo de sistema de informacion)
+
+                                    
+                                   CERTIFICACION CURSO AVANZADO DE: GIT Y GIT HUB (Programa analisis y desarollo de sistema de informacion) 
+
+
+
+
+
+
+ 
+
+                                                           ##V.Experencial laboral  
+
+
+                                                       
+                                                  MERK EXPREES S.A.S
+
+                                  CARGO: asesor de ventas
+
+                                  FUNCIONES: supervisar a mi equipo de trabajo y la calidad de
+
+                                  atencion al cliente para el cumplimiento de nuestras metas.
+
+                                  JEFE INMEDIATO: Andres David Diazgranados Rondon
+
+                                  TELEFONO: 3012086763
+ 
+                                  Fecha de Inicio 6 febrero 2017 – Fecha de 20 de abril 2018
+
+
+
+
+
+
+
+                                                            ##VI. REFERENCIAS PERSONALES
+
+
+
+                                        
+                                 Carlos Mario Puerta Posada, Abogado
+
+                                 Cargo:Oficial mayor de juzgado
+
+                                 Universidad corporativa de colombia (santa marta)
+
+                                 Telefono: 3007841619
+
+
+
+
+                                 Julieth Henrriquez Lozano, Administradora de empresas
+
+                                 Cargo:Administrativo
+
+                                 Supertiendas Olimpica
+
+                                 Telefono: 3046701131
+
+
+
+
+
+
+
+
+                                                           ##VII. REFERENCIAS FAMILIAR
+
+
+
+
+                                 Maria del Rosario Rondon Vidales, abogada especialista en derecho penal y criminalistico
+
+                                 Cargo: JUEZ de familia
+
+                                 Juzgado Santa Marta – Magdalena
+
+                                 Telefono: 3006568384
+
+
+
+
+
+                                Jaime Rafael Rondon Vidales, contador publico experto en seguridad
+
+                                Cargo: Jefe de seguridad
+
+                                Empresa: Palmeras de la costa, GHAGAR S.A
+
+                                Telefono: 3114331948
+
+
+
+
+
+
+
+
+   
+
+
+
+
+                                         ______________________________________________________
+
+                                                   JOSE MIGUEL DIAZGRANADOS RONDON
+
+                                                    CC: 1.001.996.213 BARRANQUILLA
+                                                    
